@@ -1,5 +1,6 @@
-the discord link is an add friends link, not a server link. lmk if it doesnt work.
+the woke communist leftist they warned u about. dont get me talking about politics if u dont want to listen to me talk forever.
 
-i might add more info to this thing later
+bpd / npd / did / tics / etc. aiwc.
 
-I DO NOT SUPPORT QWEL AND IF YOU DO STAY FAR FAR AWAY FROM ME.
+
+i might spice this up later. disc link is an add friends link, not a server. lmk if it doesnt work.
